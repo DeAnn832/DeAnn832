@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DeAnn832
 - 👀 I’m interested in personal & entrepreneurs growth
 - 🌱 I’m currently learning independce
-- 💞️ I’m looking to collaborate on whatever keeps my focus
+- 💞️ I’m experienced in business management
 - 📫 How to reach me cd_hottie07@yahoo.com
 
 <!---
